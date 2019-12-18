@@ -1,0 +1,2 @@
+# Ferhat
+ben çok yakısıklıyım
